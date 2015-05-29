@@ -1,2 +1,9 @@
-# penders
-git rep name
+# es te kko ierakstu
+--save--
+
+
+
+-- INSERT --
+dskjahdjdhjsdsd
+dsdgdfdfdfdfdfdd
+
